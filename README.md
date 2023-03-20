@@ -1,0 +1,3 @@
+# eft_blitz pasted eft external...
+key  - ayeteam
+![Screenshot_3](https://user-images.githubusercontent.com/57631903/226282721-0aa3e76e-cf72-494c-a59d-a0471ba94669.png)
